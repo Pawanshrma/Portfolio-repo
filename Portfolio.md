@@ -22,7 +22,5 @@ Brennan Haulage :- http://www.brennanhaulage.ie
 
 Fire-Direct :- https://www.firedirect.ie/
 
-Simo-Tech :- http://demotoday.info/simo-tech
-
 Asap Water Damage Restoration :- http://demotoday.info/asapwater/
 
